@@ -26,5 +26,4 @@ Feel free to contribute by sharing your own insights or improvements on wound ca
 This content is for educational purposes. For more details on **wound care billing services**, refer to the official links provided in the blog post.
 
 ## Contact
-For further inquiries, feel free to reach out at [your_email@example.com](mailto:your_email@example.com).
-
+For further inquiries, feel free to reach out at [info@imagnumhealthcare.com](mailto:info@imagnumhealthcare.com).
